@@ -10,3 +10,7 @@ Dashboard!!!
 Learning Management System!!!
 
 ![image](https://github.com/user-attachments/assets/b2af6508-a5aa-4c13-bdeb-543aceeec81f)
+
+![image](https://github.com/user-attachments/assets/97b04989-4a3a-433f-9182-5f93e0e0ee0b)
+
+![image](https://github.com/user-attachments/assets/180a328c-db80-475a-b7b4-f58d585039bd)
